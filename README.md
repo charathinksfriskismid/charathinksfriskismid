@@ -37,9 +37,8 @@ hi youre probs from pt
                                         kirika
                                         conan
                                      
-                                ![Orphan-Film-Still-Publicity-H-2021](https://user-images.githubusercontent.com/103019164/161816826-6c0630a2-259f-4230-badf-089b304782ea.jpg)
+                                
 
-thats also esther lol
                                      
                                      
                                      idk what to add so bye
