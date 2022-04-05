@@ -2,28 +2,44 @@
 hi youre probs from pt
                                                         
                                                         call me moe, jax or chara
-                           any prns but i prefer he/him
-                           black
-                           im gay an my gender is male
-             
-             my style is dark and you can find me by spawn
-                                          
-                                          usally im patrolling on regis,,
-       
-       sometimes im afk so if youre interacting wit me and i dont do anything then im afk.
-                       
-                       i usally wear my moetron skin//
-                       
-                        
-                        
-                        do not copy, take inspo, or cover me plz-- and do not interact unless youre a friend(if ur fun i might interact or sum)
-                        
-                        image at the top is esther from orphan, i love her!
-                        
-                                sometimes  i cant spell cause i type fast
-                                
-                                
+                         unlabled
+                         i like boys
+                         he/him
+                         black
+                         english
+                         stupid
+                         
+                            ponytown stuff
+                            
+                                  do not copy or take inspo from me
+                                   no covering me
+                                   my style isnt emo stop bullyinfh me ☠️
+                                     you can interact
+                                     no 5 or 19 year olds pls 
+                                     ❗no dsmp i hate yall 
+                                     ☑️ undertale, mlp, whateva
+                                     
+                                     i am by spawn or patrolling in regis sometimes
+                                     i can be seen wearing my moetron character
+                                     
+                                     character at the top is esther from orphan and i luv herjeijefjfeijfijeeifj
+                                     
+                                     friends 
+                                        oliber
+                                        andrew
+                                        jordan
+                                        seikond
+                                        syko
+                                        tiff
+                                        rim
+                                        margo
+                                        bush
+                                        kirika
+                                        conan
+                                     
+                                ![image](https://user-images.githubusercontent.com/103019164/161816601-54c7c51e-e346-4639-875b-83d53ef4c662.png)
+thats also esther lol
                                      
                                      
-                                     idk what to add
+                                     idk what to add so bye
                         
