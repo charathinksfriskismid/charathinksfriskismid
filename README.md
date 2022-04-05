@@ -16,14 +16,14 @@ hi youre probs from pt
                        
                         
                         
-                        do not copy, take inspo, or cover me plz-- and do not interact unless youre a friend
+                        do not copy, take inspo, or cover me plz-- and do not interact unless youre a friend(if ur fun i might interact or sum)
                         
                         image at the top is esther from orphan, i love her!
                         
                                 sometimes  i cant spell cause i type fast
                                 
                                 
-                                     dont be scared to interact i swear i dont bite(lying)
+                                     
                                      
                                      idk what to add
                         
