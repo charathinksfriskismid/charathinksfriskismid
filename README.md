@@ -18,7 +18,7 @@ hi youre probs from pt
                                      ❗no dsmp i hate yall 
                                      ☑️ undertale, mlp, whateva
                                      
-                                     i am by spawn or patrolling in regis sometimes
+                                     i am by spawn or patrolling in regis sometimes (sometimes in 18+ too) but im usally in safe server
                                      i can be seen wearing my moetron character
                                      
                                      character at the top is esther from orphan and i luv herjeijefjfeijfijeeifj
